@@ -48,7 +48,7 @@
 
 おっとっと
 
-![とと丸の形のおっとっと](http://xn--p8j3d6d9355a.com/wp-content/uploads/2015/06/%E3%81%A8%E3%81%A8%E4%B8%B8%E3%81%8A%E3%81%A3%E3%81%A8%E3%81%A3%E3%81%A8-300x225.jpeg)
+![とと丸の形のおっとっと](http://xn--p8j3d6d9355a.com/wp-content/uploads/2015/06/%E3%81%A8%E3%81%A8%E4%B8%B8%E3%81%8A%E3%81%A3%E3%81%A8%E3%81%A3%E3%81%A8-300x225.jpeg) |
 
 ---
 
@@ -56,7 +56,7 @@
 
 ミルキー
 
-![ペコちゃんが10人いるミルキーの包み紙](DSC_0544.JPG)
+![ペコちゃんが10人いるミルキーの包み紙](DSC_0544.JPG) |
 
 ---
 
@@ -64,15 +64,15 @@
 
 ミルキー
 
-![少しだけ大きいミルキー](http://blogimg.goo.ne.jp/user_image/47/0f/44aa1e3686f8a261e34088910b315bc1.jpg)
+![少しだけ大きいミルキー](http://blogimg.goo.ne.jp/user_image/47/0f/44aa1e3686f8a261e34088910b315bc1.jpg) |
 
 ---
 
 ## S級
 
-カールおじさんカール
+カール
 
-![カールおじさんの形のカール](http://xn--n8ja8pb.jp/data/upfile/2493-3.jpg)
+![カールおじさんの形のカール](http://xn--n8ja8pb.jp/data/upfile/2493-3.jpg) |
 
 ---
 
