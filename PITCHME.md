@@ -98,6 +98,7 @@
 
 ## 他にもたくさん
 
+![他のバリエーション](others.jpg)
 
 ![レアパッケージのかっぱえびせん](http://livedoor.blogimg.jp/nakaikeiji/imgs/3/9/392b74c9.jpg)
 ![ハートの形のポイフル](https://blog-001.west.edge.storage-yahoo.jp/res/blog-e6-84/nyanpeiallenn/folder/972300/99/22887499/img_1?1300101026)
