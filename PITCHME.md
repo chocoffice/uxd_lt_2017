@@ -64,19 +64,13 @@
 
 ペコちゃんが10人
 
-![ペコちゃんが10人いるミルキーの包み紙](DSC_0544.JPG) |
-
----
-
-## A級
-
-ミルキー
+![ペコちゃんが10人いるミルキーの包み紙](DSC_0544.JPG)
 
 +++
 
 ちょっと大きい
 
-![少しだけ大きいミルキー](http://blogimg.goo.ne.jp/user_image/47/0f/44aa1e3686f8a261e34088910b315bc1.jpg) |
+![少しだけ大きいミルキー](http://blogimg.goo.ne.jp/user_image/47/0f/44aa1e3686f8a261e34088910b315bc1.jpg)
 
 ---
 
@@ -88,7 +82,7 @@
 
 カールおじさんカール
 
-![カールおじさんの形のカール](http://xn--n8ja8pb.jp/data/upfile/2493-3.jpg) |
+![カールおじさんの形のカール](http://xn--n8ja8pb.jp/data/upfile/2493-3.jpg)
 
 ---
 
